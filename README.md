@@ -8,8 +8,8 @@ https://www.youtube.com/watch?v=7ruY4tML0f0
 ```
 
 ey (ya)
-hallowed duty for you, right to outplay me
-what to flow in the throw in a dreaded flow 
+hallowed duty for you, right outplay me
+what to flow in the throw in a flow dreaded 
 born and raised
 
 (I was gonna say)
@@ -29,6 +29,7 @@ on a fucking end of game ya
 let's not cut your reign
 dish out all the pain ya
 aye
+
 flay it
 slay it
 x
@@ -40,6 +41,10 @@ know your kind
 before you step up
 break up
 crest brah
+
+write it up
+fucking did it
+
 
 
 
