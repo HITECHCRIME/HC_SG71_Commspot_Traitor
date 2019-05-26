@@ -25,6 +25,15 @@ clearing murder pings of hate
 feeling pity
 nothing more
 
+dice
+trice
+lies
+mice
+die
+tries
+brace
+face
+
 
 treating 
 x
