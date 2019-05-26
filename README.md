@@ -1,4 +1,4 @@
-# HC_SG71_Commspot_Traitor
+# HC_SG71_Commsat_Traitor
 
 RikeLuxxBeats - INSANITY - Sad Dark Trap Beat 2019
 https://www.youtube.com/watch?v=7ruY4tML0f0
@@ -6,16 +6,18 @@ https://www.youtube.com/watch?v=7ruY4tML0f0
 ## Lyrics
 
 ```
+ey (ya) 
 
-ey (ya)
-hallowed duty for you, right outplay me
-what to flow in the throw in a flow dreaded 
+hallowed duty pings
+right to outplay me
+what to flow stuck in
+dreaded flow 
 born and raised
 
-(I was gonna say)
- (away)
-treat to reflect
-into rage
+I was gonna say - away
+treat to reflect, into rage
+give respect instead of fakes
+
 
 x
 x
@@ -32,11 +34,11 @@ aye
 
 flay it
 slay it
-x
 on your way up
 
-(to the black vacuum)
-
+welcome to the black - vacuum
+wicked track 
+record
 know your kind
 before you step up
 break up
