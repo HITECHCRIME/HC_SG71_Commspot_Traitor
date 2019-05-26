@@ -11,7 +11,7 @@ ey hallowed duty such a trait
 caught in draught, stuck in dreaded flow 
 i'm born and dead (now i rest)
 i was gonna say - away
-treat reflects - into rage ya
+treat reflects (---) into rage ya
 deal respect, feel the lies
 different flex (ey ya)
 
@@ -24,7 +24,7 @@ clearing murder pings of hate
 feeling pity nothing more than
 small revenge in my head
 
-put some thought
+put some thought (in)
 on a fucking end of game ya
 let's not cut your reign
 dish out all the pain ya
