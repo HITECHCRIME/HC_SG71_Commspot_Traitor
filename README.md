@@ -6,7 +6,7 @@ https://www.youtube.com/watch?v=7ruY4tML0f0
 ## Lyrics
 
 ```
-ey hallowed duty such a trait
+ey hallowed duty such a trait (or)
 (time) to outplay the life 
 caught in draught, stuck in dreaded flow 
 i'm born and dead (now i rest)
@@ -35,6 +35,8 @@ welcome to the black
 vacuum's
 making records wicked track TRAP
 aye
+
+traitor
 
 stacking rack
 deflect fakes 
