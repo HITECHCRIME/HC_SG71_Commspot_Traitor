@@ -7,43 +7,36 @@ https://www.youtube.com/watch?v=7ruY4tML0f0
 
 ```
 ey (ya) 
+hallowed duty pings the stratas
+to outplay meeee, caught in draught 
+stuck in dreaded flow, i'm born and dead
 
-hallowed duty pings
-right to outplay me
-what to flow stuck in
-dreaded flow 
-born and raised
-
+(now i rest)
 I was gonna say - away
-treat to reflect, into rage
-give respect instead of fakes
+treat to reflect - into rage
+deal respect, deflect fakes
+grasp the raw excess (ey ya)
 
-
+treating 
 x
 x
 x
 x
-
+fucking 
 put some thought
-fucking game
-put some
 on a fucking end of game ya
 let's not cut your reign
 dish out all the pain ya
 aye
-
-flay it
-slay it
+flay it slay it
 on your way up
-
 welcome to the black - vacuum
-wicked track 
-record
+making records wicked track 
+
 know your kind
 before you step up
 break up
 crest brah
-
 write it up
 fucking did it
 
