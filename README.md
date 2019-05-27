@@ -32,10 +32,8 @@ flay it slay it on your way up
 welcome to the black - vacuum's
 making records wicked trap aye
 
-track
-
-traitor
-
+(now i rest)
+track a  traitor
 stacking rack
 deflect fakes 
 
