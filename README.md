@@ -15,7 +15,6 @@ treat reflects (---) into rage ya
 deal respect, feel the lies
 different flex (ey ya)
 
-
 grasp the raw excess 
 turn it into flaws, that in spades
 navigating among sortie, 
@@ -28,14 +27,10 @@ small revenge in my head
 put some thought (in)
 on a fucking end of game ya
 let's not cut your reign
-dish out all the pain ya
-aye
-flay it slay it
-on your way up
-welcome to the black
-vacuum's
-making records wicked TRAP
-aye
+dish out all the pain ya, aye
+flay it slay it on your way up
+welcome to the black - vacuum's
+making records wicked trap aye
 
 track
 
@@ -76,7 +71,7 @@ still, still into the floss
 i need space not negating
 to reach the higher stories
 frequencies in the story
-distress
+distress, frequency of loss
 putting all the things in faith
 damn mornings
 
