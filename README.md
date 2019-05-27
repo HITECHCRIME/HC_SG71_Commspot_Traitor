@@ -15,6 +15,7 @@ treat reflects (---) into rage ya
 deal respect, feel the lies
 different flex (ey ya)
 
+
 grasp the raw excess 
 turn it into flaws, that in spades
 navigating among sortie, 
@@ -57,6 +58,32 @@ die
 tries
 brace
 face
+
+ey hello duty
+searching the trip to pay the lies
+cutting  jaws
+stacking credit flowing morn and day
+all is good i stay away
+treat to flex
+continue to rage
+feel respect, deal the lies
+good reflex ye
+
+rest in noise
+still, still into the floss
+i need space not negating
+to reach the higher stories
+frequencies in the story
+
+putting all the things in faith
+damn mornings
+
+
+push out all the gains ya
+
+make it stack
+
+
 
 
 
