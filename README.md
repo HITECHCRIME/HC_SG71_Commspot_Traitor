@@ -64,6 +64,8 @@ continue to rage
 feel respect, deal the lies
 good reflex ye
 
+direspect ye
+
 rest in noise
 still, still into the floss
 i need space not negating
