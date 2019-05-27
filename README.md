@@ -7,7 +7,7 @@ https://www.youtube.com/watch?v=7ruY4tML0f0
 
 ```
 ey hallowed duty such a trait (or)
-(time) to outplay the life 
+(time) to (out)play the life 
 caught in draught, stuck in dreaded flow 
 i'm born and dead (now i rest)
 i was gonna say - away
