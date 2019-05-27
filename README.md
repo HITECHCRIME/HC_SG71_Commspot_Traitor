@@ -6,14 +6,13 @@ https://www.youtube.com/watch?v=7ruY4tML0f0
 ## Lyrics
 
 ```
-ey hallowed duty such a trait (or)
-(time) to (out)play the life 
-caught in draught, stuck in dreaded flow 
-i'm born and dead (now i rest)
+ey hallowed duty such a trait 
+to play the life, caught in draught
+stuck in dreaded flow i'm born and dead (now i rest)
 i was gonna say - away
-treat reflects (---) into rage ya
-deal respect, feel the lies
-different flex (ey ya)
+treat reflects - into rage (ya)
+deal respect, feel the lies, 
+different flex (ya)
 
 grasp the raw excess 
 turn it into flaws, that in spades
@@ -24,13 +23,13 @@ clearing murder pings of hate
 feeling pity nothing more than
 small revenge in my head
 
-put some thought (in)
+put some thought
 on a fucking end of game ya
 let's not cut your reign
-dish out all the pain ya, aye
+dish out all the pain ya (aye)
 flay it slay it on your way up
 welcome to the black - vacuum's
-making records wicked trap aye
+making records wicked trap aye (aye)
 
 (now i rest)
 track a  traitor
@@ -72,12 +71,17 @@ i need space not negating
 to reach the higher stories
 frequencies in the story
 distress, frequency of loss
-putting all the things in faith
-damn mornings
 
+putting all the things in faith
+pity the damn mornings
+now with peace (revenge) in my head
 
 push out all the gains ya
 
+make it stack
+underway ya
+welcome to the rack
+make it stack 
 make it stack
 
 
