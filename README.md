@@ -34,8 +34,10 @@ flay it slay it
 on your way up
 welcome to the black
 vacuum's
-making records wicked track TRAP
+making records wicked TRAP
 aye
+
+track
 
 traitor
 
@@ -74,7 +76,7 @@ still, still into the floss
 i need space not negating
 to reach the higher stories
 frequencies in the story
-
+distress
 putting all the things in faith
 damn mornings
 
