@@ -10,8 +10,8 @@ ey hallowed duty such a trait
 to play the life, caught in draught
 stuck in dreaded flow i'm born and dead (now i rest)
 i was gonna say - away
-treat reflects - into rage (ya)
-deal respect, feel the lies, 
+treat reflects - into rage
+deal respect (ya) feel the lies, 
 different flex (ya)
 
 grasp the raw excess 
@@ -30,7 +30,6 @@ dish out all the pain ya (aye)
 flay it slay it on your way up
 welcome to the black - vacuum's
 making records wicked trap aye (aye)
-
 
 
 (now i rest)
